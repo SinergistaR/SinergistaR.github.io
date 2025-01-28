@@ -1,1 +1,0 @@
-# SinergistaR.github.io
